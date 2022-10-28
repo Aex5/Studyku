@@ -1,1 +1,2 @@
 # Studyku onProgres
+lawak geming
